@@ -1,2 +1,2 @@
 # allenwugogo
-first set
+kyoto gogo!
