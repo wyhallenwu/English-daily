@@ -1,2 +1,2 @@
 # wuli allenwu
-kyoto gogo! Allen wu   
+kyoto gogo!
